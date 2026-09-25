@@ -2,7 +2,7 @@
 
 🚀 Estudante de Analise e Desenvolvimento de Sistemas USJT | Java
 
-Estudando no 1 semestre, em busca de criar oportunidades, aprender e evoluir o maximo o possivel
+Estudando no 2 semestre, em busca de criar oportunidades, aprender e evoluir o maximo o possivel
 
 ---
 
